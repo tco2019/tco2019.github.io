@@ -12,9 +12,16 @@ Der Soundtrack zum Film erschien in mindestens vier verschiedenen Zusammenstellu
 ### Langfassung
 Zusätzlich zu der dreistündigen Fassung, die zunächst in den Kinos startete, erschien eine knapp vierstündige Fassung. Beide Fassungen werden hier der Unterscheidbarkeit halber Kurz- und Langfassung genannt, je nach Veröffentlichungsmedium und Verleih bzw. Sender sind auch andere, teilweise mehrdeutige Bezeichnungen in Gebrauch.
 
+## Indianerleben
+Aus Wikipedia (Link siehe oben): Etliche Kritiker hoben betreffs der Darstellung der Indianer anerkennend eine Abkehr von den Klischees hervor, die über sie unter Weißen und unter Kinobesuchern – auch und gerade wegen vieler früherer Western – verbreitet seien. Ein Beispiel dafür ist die Meinung von Franz Everschor in der Zeitschrift Film-Dienst, aus der sich das Lexikon des internationalen Films speist. Es gebe in dem Film weder die „in Kostüme gesteckten, bunt bemalten weißen Chargen, die den vorbeireitenden Helden mit lakonischem ‚How‘ begrüßen“, noch die „Horden unzivilisierter Barbaren, die blindwütig über Frauen und Kinder herfallen“, mehr. Der Film sei „kein romantisch idealisierendes Indianerporträt“ und keine „sentimentale Schönfärberei“, sondern – so Everschor hoch lobend – „die lange überfällige Korrektur eines primitiven, von alter Kolonial-Mentalität durchdrungenen Kino-Klischees, das über viele Jahrzehnte die Vorstellung des Kinogängers von der degenerierten indianischen Rasse geprägt“ habe.[31] Die Zeitschrift Cinema sprach über Der mit dem Wolf tanzt von einem „Stück filmischer Wiedergutmachung an den amerikanischen Ureinwohnern“.[55]
+
 
 Text Kopie von [URL](https://de.wikipedia.org/wiki/Der_mit_dem_Wolf_tanzt).
-
+* Liste a
+* Liste b
+* Liste c
+* Liste d
+* usw.
 
 
 <img src="https://www.movie-infos.net/cms/FileDownload/1444-Der-mit-dem-Wolf-tanzt-jpg">
