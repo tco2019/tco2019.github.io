@@ -23,5 +23,6 @@ Text Kopie von [URL](https://de.wikipedia.org/wiki/Der_mit_dem_Wolf_tanzt).
 * Liste d
 * usw.
 
+> Sind einige Zitate vorhanden.
 
 <img src="https://www.movie-infos.net/cms/FileDownload/1444-Der-mit-dem-Wolf-tanzt-jpg">
