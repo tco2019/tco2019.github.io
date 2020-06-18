@@ -9,6 +9,10 @@ Der Film spielt im Jahr 1863 zur Zeit des Sezessionskrieges. Die Handlung beginn
 ### Short Description Soundtrack aus Wikipedia
 Der Soundtrack zum Film erschien in mindestens vier verschiedenen Zusammenstellungen, stets auf CD und teilweise auch anderen Medien wie Musikkassette, Schallplatte und Audio-on-Demand. Die erste Veröffentlichung ging mit dem Beginn der Aufführung des Films in den US-Kinos einher, erfolgte durch das Label Epic Records und enthält 18, im Film enthaltene Musikstücke von John Barry. Die Recording Industry Association of America zeichnete diese Ausgabe im Juni 1991 zunächst mit einer goldenen Schallplatte, im November 1993 dann mit einer Schallplatte in Platin für eine Million verkaufte Einheiten aus.[42] 1995 und 2004 folgten je eine Ausgabe mit zusätzlichen, als Bonus-Tracks beworbenen Musikstücken, diese Ausgaben enthalten 21[43] bzw. 24[44] Titel. Mit dem Untertitel 25th Anniversary Expanded Edition erschien im Dezember 2015 beim Label La-La Land Records eine weitere Ausgabe des Soundtracks. Sie ist auf 5000 Exemplare limitiert und enthält 60 verschiedene Stücke mit einer Gesamtlaufzeit von über zwei Stunden.[45]
 
+### Langfassung
+Zusätzlich zu der dreistündigen Fassung, die zunächst in den Kinos startete, erschien eine knapp vierstündige Fassung. Beide Fassungen werden hier der Unterscheidbarkeit halber Kurz- und Langfassung genannt, je nach Veröffentlichungsmedium und Verleih bzw. Sender sind auch andere, teilweise mehrdeutige Bezeichnungen in Gebrauch.
+
+
 Text Kopie von [URL](https://de.wikipedia.org/wiki/Der_mit_dem_Wolf_tanzt).
 
 
