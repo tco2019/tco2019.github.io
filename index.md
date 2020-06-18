@@ -29,3 +29,5 @@ Text Kopie von [URL](https://de.wikipedia.org/wiki/Der_mit_dem_Wolf_tanzt).
 
 Und zuletzt
 <img src="https://www.salto.bz/sites/default/files/styles/salto_article_main_image/public/thumbnails/image/wolf_5.jpg?itok=EUPPjFek">
+
+<img src="https://www.dvd-forum.at/img/uploaded/sammlerstuecke/127909147882785900.jpg">
